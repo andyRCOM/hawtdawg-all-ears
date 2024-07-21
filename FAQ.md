@@ -1,7 +1,14 @@
-# FAQ
+# where do I ist my favourite reats
 
-## How many photos can I post
+Open the hawt doog app and click edit profile
 
-We want to oknow bla val 15 photos.
-For those that are camera shy -- post a profile.
-SHowcase your best self.
+scroll down to the section passitions
+when your done, click save.
+
+## Photos are nice and all, but I dont see well. How can I smell other dogs?
+
+We regret that we are unable to offer our cusotmers smell o vision at this time.
+
+As soon as human technology catches up.
+
+In the meantime, why not meet up at a dog park to get a whiff. 
