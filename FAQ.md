@@ -1,7 +1,6 @@
-# FAQ
+# where do I ist my favourite reats
 
-## How many photos can I post
+Open the hawt doog app and click edit profile
 
-We want to oknow bla val 15 photos.
-For those that are camera shy -- post a profile.
-SHowcase your best self.
+scroll down to the section passitions
+when your done, click save.
